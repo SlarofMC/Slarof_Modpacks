@@ -1,1 +1,1 @@
-# Slarof Modpack
+# Slarof Modpacks
